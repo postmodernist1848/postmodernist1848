@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @postmodernist1488
 - 👀 I’m interested in philosophy and programming
-- 🌱 I’m currently learning Python
+- 🌱 I’m currently learning Python and C
 - 💞️ I’m looking to collaborate on sex
 - 📫 How to reach me: a sacrifice ritual or Telegram @llltypoe
